@@ -1,4 +1,4 @@
 first-repo
 ==========
 
-This is going to awesome!
+I wear your grandad's clothes. I look incredible.
